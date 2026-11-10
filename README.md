@@ -1,0 +1,1 @@
+# projekt_sprzeazy_czesci
