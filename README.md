@@ -1,0 +1,1 @@
+# sprzdarz git repo
